@@ -1,0 +1,1 @@
+# copy_bootcamp-darkstore-provider-artem_10_10_2025
